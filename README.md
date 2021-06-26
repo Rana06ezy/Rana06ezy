@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rana06ezy
+Ku- 👋 Hi, I’m @Rana06ezy
 - 👀 I’m interested in ...renv
 - 🌱 I’m currently learning ...cyti
 - 💞️ I’m looking to collaborate on ...mytu
